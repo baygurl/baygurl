@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @baygurl
+- 👋 Hi, I’m @babygurl
 - 👀 I’m interested in changing the world for the better!
 - 🌱 I’m currently learning life:)
 - 💞️ I’m looking to collaborate on a proejct that will change the world
